@@ -1,0 +1,1 @@
+# Cuadro eléctrico
